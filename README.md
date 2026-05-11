@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Lou
+# 👋 Hi, I'm Nova.exe
 Je suis une simple developpeuse FiveM, Discord JS and Web<br/>
 J'ai Actuellement 28 ans <br/>
 France <br/>
